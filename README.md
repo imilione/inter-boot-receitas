@@ -4,3 +4,4 @@ Aqui veremos algumas receitas de diversos tipos de comidas, atendendo todas as p
 
 - Strogonoff de frango.
 - Pavê.
+- Bolo de cenoura.
